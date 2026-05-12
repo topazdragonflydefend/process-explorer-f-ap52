@@ -1,4 +1,4 @@
-# 
+# updated Process Explorer for PC | Process Explorer for Windows Script | file-search + duplicate-detection is the best Process Explorer for PC | Process Explorer for Windows
 
 
 
